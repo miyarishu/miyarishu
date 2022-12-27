@@ -1,1 +1,1 @@
-retarded girl who knows python and a small amount of java
+retarded girl who knows python, lua and a small amount of java
